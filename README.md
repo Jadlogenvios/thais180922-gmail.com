@@ -1,1 +1,1 @@
-# thais180922-gmail.com
+thais180922@gmail.com
